@@ -42,7 +42,7 @@ Some of my favorite podcasts I enjoy:
 * Darknet Diaries
 
 #### Life
-I love to go here to relax and train
+I don’t get to go here often, but I love it when I can! 
 
 ![Image](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9f/Government_Square%2C_Lincoln%2C_Nebraska%2C_USA.jpg/1280px-Government_Square%2C_Lincoln%2C_Nebraska%2C_USA.jpg)
 
