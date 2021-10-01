@@ -33,6 +33,7 @@ Some of my favorites:
 
 #### Games
 I enjoy Stardew Valley, it's such a relaxing game!
+
 I used to enjoy Battlefield 3 and Halo Reach. 
 
 #### Podcasts
