@@ -44,7 +44,7 @@ Some of my favorite podcasts I enjoy:
 #### Life
 I love to go here to relax and train
 
-![Image](https://imgur.com/a/Quxqjxg)
+![Image](https://i.imgur.com/HVnPJFa.png)
 
 #### Reaching Out
 I'm available on [Twitter](https://twitter.com/ryder_abel)
