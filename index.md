@@ -44,7 +44,7 @@ Some of my favorite podcasts I enjoy:
 #### Life
 I don't get to go here often, but I love it when I can!
 
-![Image](https://en.wikipedia.org/wiki/Lincoln,_Nebraska#/media/File:Government_Square,_Lincoln,_Nebraska,_USA.jpg)
+![Image](https://upload.wikimedia.org/wikipedia/commons/9/9f/Government_Square%2C_Lincoln%2C_Nebraska%2C_USA.jpg)
 
 #### Reaching Out
 I'm available on [Twitter](https://twitter.com/ryder_abel)
