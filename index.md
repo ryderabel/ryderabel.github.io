@@ -1,0 +1,49 @@
+## Ryder Abel
+
+Hi, my name is Ryder! Welcome to my personal website. 
+
+### Location
+
+I am located in Lincoln, Nebraska.
+
+### Experience
+
+My professional experience is primarily from working as an athletic trainer at Planet Fitness. During college, I worked at one of the school gyms as a personal trainer.
+
+### Education
+
+I graduated with a degree in Athletic Training from the University of Nebraska in Lincoln in 2013. Go Huskers!
+
+I was involved with the following organizations:
+* Delta Cubes
+* Climbing Club
+* Bowling team
+
+### Personal
+#### Music
+Here are some of my favorite artists:
+* Taylor Swift
+* Imagine Dragons
+* Ashe
+
+#### Movies
+Some of my favorites:
+* Forrest Gump
+* Shawshank Redemption
+
+#### Games
+I enjoy Stardew Valley, it's sucha relaxing game!
+I used to enjoy Battlefield 3 and Halo Reach. 
+
+#### Podcasts
+Some of my favorite podcasts I enjoy:
+* Freakonomics
+* Techmeme Ridehome 
+* Darknet Diaries
+
+#### Life
+I don't get to go here often, but I love it when I can!
+![Image](https://en.wikipedia.org/wiki/Lincoln,_Nebraska#/media/File:Government_Square,_Lincoln,_Nebraska,_USA.jpg)
+
+#### Reaching Out
+I'm available on [Twitter](https://twitter.com/ryder_abel)
