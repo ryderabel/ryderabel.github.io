@@ -24,7 +24,7 @@ I was involved with the following organizations:
 Here are some of my favorite artists:
 * Taylor Swift
 * Imagine Dragons
-* Ashe
+* Ed Sheran
 
 #### Movies
 Some of my favorites:
