@@ -25,7 +25,6 @@ Here are some of my favorite artists:
 * Taylor Swift
 * Imagine Dragons
 * Ed Sheran
-* Drake
 
 #### Movies
 Some of my favorites:
