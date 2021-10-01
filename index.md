@@ -32,7 +32,7 @@ Some of my favorites:
 * Shawshank Redemption
 
 #### Games
-I enjoy Stardew Valley, it's sucha relaxing game!
+I enjoy Stardew Valley, it's such a relaxing game!
 I used to enjoy Battlefield 3 and Halo Reach. 
 
 #### Podcasts
@@ -43,6 +43,7 @@ Some of my favorite podcasts I enjoy:
 
 #### Life
 I don't get to go here often, but I love it when I can!
+
 ![Image](https://en.wikipedia.org/wiki/Lincoln,_Nebraska#/media/File:Government_Square,_Lincoln,_Nebraska,_USA.jpg)
 
 #### Reaching Out
