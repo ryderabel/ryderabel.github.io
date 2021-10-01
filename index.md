@@ -42,9 +42,9 @@ Some of my favorite podcasts I enjoy:
 * Darknet Diaries
 
 #### Life
-I don't get to go here often, but I love it when I can!
+I love to go here to relax and train
 
-![Image](https://upload.wikimedia.org/wikipedia/commons/9/9f/Government_Square%2C_Lincoln%2C_Nebraska%2C_USA.jpg)
+![Image](https://imgur.com/a/Quxqjxg)
 
 #### Reaching Out
 I'm available on [Twitter](https://twitter.com/ryder_abel)
