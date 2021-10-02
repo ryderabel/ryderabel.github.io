@@ -30,7 +30,7 @@ Here are some of my favorite artists:
 Some of my favorites:
 * Forrest Gump
 * Shawshank Redemption
-* The Matrix
+* Wargames
 
 #### Games
 I enjoy Stardew Valley, it's such a relaxing game!
